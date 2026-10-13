@@ -216,4 +216,4 @@ UNITALE is provided as a full free version with all features and updates include
 Don't miss out on this exciting adventure! Download UNITALE today and step into the world of retro RPG gaming!
 
 ---
-**Last updated:** 2026-10-13 19:37:13 UTC
+**Last updated:** 2026-10-13 23:29:38 UTC
